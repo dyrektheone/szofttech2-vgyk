@@ -1,0 +1,1 @@
+Szoftvertechnológia II. Viszgagyakorló
